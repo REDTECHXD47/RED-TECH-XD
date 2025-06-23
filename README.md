@@ -7,4 +7,4 @@
 🔥
 🫴 REDTECH XD BOT THE MOST `POWERFUL BUG BOT` _👿CRASH YOUR ENEMIES NOW_
 **CREATED BY REDTECH FROM TANZANIA 🇹🇿 **
-### ENJOY DONT FORGET TO  _fork and repo_
+### ENJOY DONT FORGET TO  _fork and 🌟 star_
